@@ -1,5 +1,5 @@
 # LEGAE RAMAJA    
-📧 [legarams@gmail.com](mailto:legarams@gmail.com) |) 
+📧 [legarams@gmail.com](mailto:legarams@gmail.com)
 
 ---
 
