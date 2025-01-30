@@ -1,4 +1,4 @@
-## LEGAE RAMAJA  
+# LEGAE RAMAJA  
 **Private Bag 40, Francistown**  
 📧 [legaeramaja@gmail.com](mailto:legaeramaja@gmail.com) | 📞 [+267 72727633](tel:+26772727633) / [+267 74135212](tel:+26774135212)  
 
